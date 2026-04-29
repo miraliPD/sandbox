@@ -2,6 +2,22 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-04-30 00:37 IR
+- 🎬 [Carlee Bright makes NXT debut against Lola Vice： NXT highlights, May 14, 2024.mp4](https://github.com/miraliPD/sandbox/raw/main/dl/Carlee%20Bright%20makes%20NXT%20debut%20against%20Lola%20Vice%EF%BC%9A%20NXT%20highlights%2C%20May%2014%2C%202024.mp4) `13.1MB`
+
+- 🎬 [LUCHA COMPLETA： Lola Vice vs. Wren Sinclair： NXT, Nov. 26, 2024.mp4](https://github.com/miraliPD/sandbox/raw/main/dl/LUCHA%20COMPLETA%EF%BC%9A%20Lola%20Vice%20vs.%20Wren%20Sinclair%EF%BC%9A%20NXT%2C%20Nov.%2026%2C%202024.mp4) `22.3MB`
+
+- 🎬 [Lola Vice VS Jacy Jayne.mp4](https://github.com/miraliPD/sandbox/raw/main/dl/Lola%20Vice%20VS%20Jacy%20Jayne.mp4) `40.3MB`
+
+- 🎬 [Lola Vice vs Arianna Grace： NXT, Feb. 25, 2025.mp4](https://github.com/miraliPD/sandbox/raw/main/dl/Lola%20Vice%20vs%20Arianna%20Grace%EF%BC%9A%20NXT%2C%20Feb.%2025%2C%202025.mp4) `18.5MB`
+
+- 🎬 [Lola Vice vs Arianna Grace： NXT, May. 28, 2024.mp4](https://github.com/miraliPD/sandbox/raw/main/dl/Lola%20Vice%20vs%20Arianna%20Grace%EF%BC%9A%20NXT%2C%20May.%2028%2C%202024.mp4) `27.7MB`
+
+- 🎬 [Lola Vice vs Jacy Jayne： NXT, Sep. 17, 2024.mp4](https://github.com/miraliPD/sandbox/raw/main/dl/Lola%20Vice%20vs%20Jacy%20Jayne%EF%BC%9A%20NXT%2C%20Sep.%2017%2C%202024.mp4) `22.8MB`
+
+---
+
+
 ### 📅 2026-04-30 00:30 IR
 - 🎬 [Natalya vs. Lola Vice： NXT highlights, March 26, 2024.mp4](https://github.com/miraliPD/sandbox/raw/main/dl/Natalya%20vs.%20Lola%20Vice%EF%BC%9A%20NXT%20highlights%2C%20March%2026%2C%202024.mp4) `13.0MB`
 
